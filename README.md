@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @harydhungel07
+- 👀 I’m interested in football
+- 🌱 I’m currently learning how to use computer
+- 💞️ I’m looking to collaborate with mrbeast
+- 📫 How to reach me ... contact at me nopleasedontcontactme@gmaul.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...

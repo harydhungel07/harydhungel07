@@ -2,6 +2,6 @@
 - 👀 I’m interested in football
 - 🌱 I’m currently learning how to use computer
 - 💞️ I’m looking to collaborate with mrbeast
-- 📫 How to reach me ... contact at me nopleasedontcontactme@gmaul.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 📫 How to reach me ... contact at me dhungelhari10@gmail.com
+- 😄 Pronouns: ...MR.Hary
+- ⚡ Fun fact: ...You are beautiful.
